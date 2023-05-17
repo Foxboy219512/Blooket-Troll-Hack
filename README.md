@@ -1,2 +1,2 @@
 # Blooket-Troll-Hack
-Troll Blooket Hacks
+Troll Your friend using this
